@@ -1,1 +1,1 @@
-# cc50-Ciencia-da-computa-o---Estudar-fora
+# cc50-Ciencia-da-computa-o-Estudar-fora
